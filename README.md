@@ -1,0 +1,2 @@
+# premium-tooling-gold-001-gold-tooling-book-cover-patter
+You've got gold tooling designs scattered across Pinterest, Instagram, and random files—but zero organized system to actually reference them when creating book covers. The Gold Tooling Book Cover Pattern Library solves this by giving you a searchable, categorized Notion workspace where every pattern is just one click away.  Stop recreating the whee
